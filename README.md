@@ -17,7 +17,7 @@ As a fellow student, I understand the challenges we face during exam preparation
 
 ## <span style="color:#E91E63;">Important Links</span>
 
-- [Google Drive - All Semester Notes](https://drive.google.com/drive/folders/1pOXmZnhDGJ-KgV6GvAGJQ0FbsqYVGKrV?usp=drive_link)
+- [Google Drive - All Semester Notes](https://drive.google.com/drive/folders/1ovP3wxd2ZdtDuXtyGETYDxJoVzLpBsQd?usp=sharing)
 
 ---
 
